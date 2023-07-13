@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RupaDas123
+- 👀 I’m interested in Financial banking and Business Management 
+- 🌱 I’m currently learning a Master of Business Management at the Indian Institute of Management Indore
